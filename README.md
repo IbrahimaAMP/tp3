@@ -1,3 +1,7 @@
+branche 2 amar tu vas jms trouve Nwaar
+Ah bah ouais
+Ah, ouais
+Sale, hey
 J'voyage rarement, j'regarde story
 Quelques biatchs pour m'évader
 Début d'soirée j'suis d'jà bourré
