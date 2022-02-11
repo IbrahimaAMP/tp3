@@ -1,3 +1,4 @@
+Tuvas jamais trouver
 J'voyage rarement, j'regarde story
 Quelques biatchs pour m'évader
 Début d'soirée j'suis d'jà bourré
